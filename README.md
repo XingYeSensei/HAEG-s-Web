@@ -1,2 +1,1 @@
-# This is HAEG's web.It's a Chinese Web. #
-## You can use "QQ" talk with me ##
+# 本人已经退群,开源跑路了>^< #
